@@ -6,6 +6,7 @@
 - ⚡ Fun fact **I can't think of it😭😭**
 
 <h3 align="left">Connect with me:</h3>
+<a href="https://hoangmaidong.com/>My Info</a>
 <p align="left">
 </p>
 
